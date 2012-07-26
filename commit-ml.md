@@ -1,1 +1,1 @@
-I Love Atmore
+I Love Bernie
