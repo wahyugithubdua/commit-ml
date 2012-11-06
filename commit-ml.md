@@ -1,1 +1,1 @@
-I Love Amos
+I Love Lyndon
