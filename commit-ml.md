@@ -1,1 +1,1 @@
-I Love Brigette
+I Love Lore
