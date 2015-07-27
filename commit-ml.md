@@ -1,1 +1,1 @@
-I Love Tijuana
+I Love Candy
