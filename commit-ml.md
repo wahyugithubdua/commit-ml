@@ -1,1 +1,1 @@
-I Love Paulina
+I Love Lindsay
