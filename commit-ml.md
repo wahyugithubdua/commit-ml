@@ -1,1 +1,1 @@
-I Love Essie
+I Love Edmond
